@@ -1,4 +1,7 @@
-the past, as a fabricator
+# The past..
+## designing as a fabricator
+
+the i
 
 ![poster 2 - portal](https://user-images.githubusercontent.com/94196366/166559672-ea03e666-07e1-44c9-92c8-c04f20919fe5.png)
 
