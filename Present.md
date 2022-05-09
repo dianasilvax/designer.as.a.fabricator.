@@ -5,6 +5,7 @@ being uncomfortable when creating something outside my comfort zone comes from t
 creating purely to please others and to make something that everybody likes, 
 rather than creating to learn, experience, and grow my identity as a fabricator:
 
+#### psss check this out ↴
 https://my.spline.design/glasscirclescopy-c7b5e2835b8af7e76934d26e6d83b92e/
 
 -
