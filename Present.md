@@ -3,9 +3,9 @@ Being in the present as a fabricator, what am i trying to learn?
 Fabricating a new mindset, skills, entity.
 being uncomfortable when creating something outside my comfort zone comes from the fear of graphic design boundaries, 
 creating purely to please others and to make something that everybody likes, 
-rather than creating to learn, experience, and grow my identity as a fabricator
+rather than creating to learn, experience, and grow my identity as a fabricator:
 
-https://user-images.githubusercontent.com/94196366/166560555-b3fd350d-3fbd-4637-8c67-f8797d9d3ebf.mp4
+https://my.spline.design/glasscirclescopy-c7b5e2835b8af7e76934d26e6d83b92e/
 
 -
 
